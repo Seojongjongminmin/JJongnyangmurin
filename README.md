@@ -16,7 +16,7 @@
 
 ### 🏫 Timeline
 - [2021. 03 ~ ]   **B.Sc. in Computer Software, Korean bible Univ.**
-- <br/>
+ <br/>
 
 ### 🏆 Awards
 - 🥈 [2022. 10. 27] 창업경진대회 **작품부문 우수상**
